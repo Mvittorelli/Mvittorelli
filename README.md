@@ -1,0 +1,7 @@
+- 👋 Hi, I'm a fisgh
+- 👀 I’m interested in Jody
+- 🌱 I’m currently learning how to commit suicide
+- 💞️ I’m not looking to collaborate
+- 📫 How to reach me: no
+- 😄 Pronouns: zie / zim / zir / zis / zieself
+- ⚡ Fun fact: idk
