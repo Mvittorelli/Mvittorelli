@@ -3,4 +3,4 @@
 - 💞️ I’m not looking to collaborate
 - 📫 How to reach me: no
 - 😄 Pronouns: He / Him
-- ⚡ Fun fact: rythm games addict
+- ⚡ Fun fact: rythm games addict, pigeon and cat lover
