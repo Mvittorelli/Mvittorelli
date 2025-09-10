@@ -4,9 +4,10 @@
   <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Animals/Cat%20Face.png" alt="Cat Face" width="150" height="150" /> 
 - 👀 I’m interested in cat
 - 💞️ I’m not looking to collaborate
-- 📫 How to reach me: no
+- 📫 How to reach me:
+     - a
 - 😄 Pronouns: He / Him
-- ⚡ Fun fact: rythm games addict, pigeon, ants and cat lover
+- ⚡ Fun fact: rythm games and music addict, pigeon, ants and cat lover
 
   <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Animals/Bird.png" alt="Bird" width="100" height="100" />
   <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Animals/Cat.png" alt="Cat" width="100" height="100" />
