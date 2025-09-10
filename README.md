@@ -5,7 +5,7 @@
 - 👀 I’m interested in cat
 - 💞️ I’m not looking to collaborate
 - 📫 How to reach me:
-     - a
+     - Discord: jody727
 - 😄 Pronouns: He / Him
 - ⚡ Fun fact: rythm games and music addict, pigeon, ants and cat lover
 
